@@ -1,1 +1,1 @@
-# https://Blud7.github.io
+# https://Blud72.github.io
